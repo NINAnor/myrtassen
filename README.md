@@ -1,0 +1,1 @@
+Video story for the [myrtassen](https://www.nina.no/myrtassen) project.
